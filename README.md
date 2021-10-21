@@ -1,2 +1,2 @@
 # mutolaa-kutubxona
-Ushbu repositoryda mening birinchi ishga tushgan kutubxona saytim joylashgan
+Ushbu repositoryda mening birinchi ishga tushgan kutubxona saytim joylashgan!
